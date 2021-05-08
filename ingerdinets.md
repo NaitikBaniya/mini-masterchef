@@ -1,0 +1,1 @@
+Marinated overnight, the chicken is roasted and cooked in tomato puree, cream, butter and a host of masalas. A perfect dinner party recipe, this North-Indian style chicken recipe is made throughout the country with equal zest and can be served with cooked rice or naan. It is loved by all age groups.
